@@ -3,7 +3,7 @@ estou aprendendo a programar em
 > JavaScript
 
 tenho
-> 15 anos
+> 15 anos :smirk:
 
 gosto muito de 
 > programar em JavaScript
