@@ -1,9 +1,9 @@
-meu nome e **luiztpd** 
+meu nome e **luiz otavio** :angel:
 estou aprendendo a programar em
 > JavaScript
 
 tenho
-> 15 anos :smirk:
+> 15 anos 
 
 gosto muito de 
 > programar em JavaScript
